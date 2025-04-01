@@ -1,4 +1,5 @@
 # Influenx AI Review 2025: The Ultimate AI-Powered Influencer Marketing Revolution
+![image](https://github.com/user-attachments/assets/c083b3dd-5b84-4a62-93fa-a90660544b52)
 
 In today’s fast-paced digital world, influencer marketing has become one of the most powerful tools for brands to reach their target audiences. But with so many influencers out there, finding the right one for your brand can feel like searching for a needle in a haystack. Enter Influenx AI—the game-changing AI-powered platform designed to simplify and optimize influencer marketing like never before.
 
